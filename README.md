@@ -6,6 +6,6 @@
 
 [RENTRY](https://rentry.co/manglesplayplace) [ATABOOK](https://theironlung.atabook.org)
 
-hail mary , forgive me ![star](https://64.media.tumblr.com/181a67bc5dc011f78fe44f089b6b9e1b/2a24fcff5a9b258a-11/s1280x1920/e2902194f4ae313f64073b0a4f88556ffed5f60b.gif)
+hail mary , forgive me .
 
 </div>
