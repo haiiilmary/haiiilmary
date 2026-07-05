@@ -1,6 +1,5 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?haiiilmary&color=blue&style=plastic)
  
  # . . . welcome
 
