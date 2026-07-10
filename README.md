@@ -1,4 +1,4 @@
-
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=haiiilmary&color=lightgrey&style=plastic)
 
@@ -10,4 +10,4 @@
 
 hail mary , forgive me .
 
-
+</div>
