@@ -6,7 +6,7 @@
 
 ![sghd](https://i.pinimg.com/1200x/25/63/cf/2563cf26eb37a3148400e3c5f7fcc93a.jpg)
 
-rmking [ATABOOK](https://multislab.atabook.org)
+[ABT ME](https://text.is/johnsgraveyard) [ATABOOK](https://multislab.atabook.org)
 
 hail mary , forgive me .
 
