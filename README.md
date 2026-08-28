@@ -4,7 +4,7 @@
 
  # . . . welcome
 
-![sghd](https://i.pinimg.com/1200x/25/63/cf/2563cf26eb37a3148400e3c5f7fcc93a.jpg)
+![sghd](https://i.pinimg.com/1200x/2c/df/2d/2cdf2dc2251cafd26d5d325cd66ffb35.jpg)
 
 [STRAWPAGE](https://moescircus.straw.page) [ATABOOK](https://multislab.atabook.org)
 
