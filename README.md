@@ -6,9 +6,10 @@
 
 ![sghd](https://i.pinimg.com/1200x/2c/df/2d/2cdf2dc2251cafd26d5d325cd66ffb35.jpg)
 
+
 [STRAWPAGE](https://moescircus.straw.page) [ATABOOK](https://multislab.atabook.org)
 
-hail mary , forgive me .
+. . what's with this dog motif ? 
 
 </div>
 
